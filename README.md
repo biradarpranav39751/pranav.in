@@ -6,5 +6,6 @@
 
 ![1638429927340](https://user-images.githubusercontent.com/95334065/144376878-7c13fdd0-1897-4b21-bdba-0f6b70aefe1a.jpg)
 [Software Expert (4).docx](https://github.com/biradarpranav39751/pranav.in/files/7639990/Software.Expert.4.docx)
+[certificates.pdf](https://github.com/biradarpranav39751/pranav.in/files/7640057/certificates.pdf)
 
 
