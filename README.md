@@ -5,5 +5,6 @@
 ![1638428645466](https://user-images.githubusercontent.com/95334065/144374389-99abcd76-c2a5-48d5-8377-9cae46d9c93e.jpg)
 
 ![1638429927340](https://user-images.githubusercontent.com/95334065/144376878-7c13fdd0-1897-4b21-bdba-0f6b70aefe1a.jpg)
+[Software Expert (4).docx](https://github.com/biradarpranav39751/pranav.in/files/7639990/Software.Expert.4.docx)
 
 
